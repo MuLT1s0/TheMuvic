@@ -1,5 +1,1 @@
-
-Халоу
-Это Самое Тут нечего нету!
-https://filmach.ru/watch/uTvuoVSPWYXbddbG
-![image](https://github.com/user-attachments/assets/31c62e52-dfaf-4713-9721-5a495d9de933)
+![image](https://github.com/user-attachments/assets/19a2e748-1947-45d6-928e-da22250205e3)
